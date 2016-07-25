@@ -9,3 +9,4 @@ https://www.linkedin.com/in/khaledanyc
  Short Bio:
  Spent the last eight and a half years studying the sexual behaviors of birds.  
  Currently, I am pursuing a second career in web Development.
+Education: Master's of Arts in Biology Queens College
